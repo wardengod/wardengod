@@ -8,5 +8,5 @@
 wardengod/wardengod is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->my discord https://discord.com/invite/XGJEK2REeR
----> https://wandercloud.cloud/
----> https://discord.com/invite/pA8k8Ve3pZ
+---> join discord server 24/7 online hosting https://discord.com/invite/pA8k8Ve3pZ
+---> 24/7 online hosting link https://wandercloud.cloud/
